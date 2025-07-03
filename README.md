@@ -1,2 +1,2 @@
 - 🇰🇷 student
-- [my place](https://circlepayback.com)
+- [my place](https://seowoo.studio)
